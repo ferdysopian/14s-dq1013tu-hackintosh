@@ -1,0 +1,1 @@
+# 14s-dq1013tu-hackintosh
